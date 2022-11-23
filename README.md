@@ -1,1 +1,0 @@
-# Teano-Glavieux-Rodrigues
